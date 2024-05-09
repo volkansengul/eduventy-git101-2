@@ -5,3 +5,9 @@
 ## merhaba büşra !
 
 ## buraıs main branch
+
+## hello :D
+
+## Güzel günler göreceğiz güneşli günler ^\_^
+
+## eee daha daha nasılsınız
